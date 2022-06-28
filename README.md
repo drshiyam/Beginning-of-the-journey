@@ -7,3 +7,5 @@
 # I have long dreamt 🌃 of being in the tech space and this is my shot 💪 at it and I am ready to give it my best shot 🎯.
 
 # So help me God, Amen. ❣️
+
+# 10/10
